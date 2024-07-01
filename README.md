@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Potatopota
 - 👀 I’m interested in myself
 - 🌱 I’m currently learning about myself
-- 💞️ I’m looking to collaborate on y'all including an alien
+- 💞️ I’m looking to collaborate with y'all including an alien
 - 📫 How to reach me : telepathy
 - 😄 Pronouns: whatever you want
 - ⚡ Fun fact: yippiee
